@@ -1,0 +1,1 @@
+# Nsasoft-SpotAuditor-Latest-Patch
